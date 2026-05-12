@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CorelDRAW for macOS extension with rare Extension for CorelDRAW for macOS - collaboration and version history. Featuring collaboration and version history, it's
 
 
 
